@@ -1,0 +1,1 @@
+# How to configure SSH for GitHub
