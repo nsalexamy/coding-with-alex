@@ -3,7 +3,5 @@
 ## Your answer
 none
 
-It is daddy for sure.
-
 ## Answer
 
